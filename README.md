@@ -34,4 +34,4 @@ Track revenue and profitability over 3 years (2022 to 2024) and estimate where r
 **Heena Kausar**
 
 - GitHub: [hkausar542-cyber](https://github.com/hkausar542-cyber)
-- LinkedIn: [Heena Kausar](https://www.linkedin.com/in/heena-kausar/)
+- LinkedIn: [Heena Kausar](https://www.linkedin.com/in/heena-kausar-256331301/)
